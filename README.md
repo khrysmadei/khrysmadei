@@ -11,6 +11,6 @@ I'm Khrysma Dei Caldina
     - via e-mail: kd.caldina@gmail.com 
     - via Pinterest: <a href="https://www.google.com/" target="_blank">@grahamzz</a>
     - via Instagram: @khyyyyd
-    - via Facebook: <a href=" https://www.facebook.com/khrysma.dei" target="@khrysma.dei">
+    - via Facebook: <a href="https://www.facebook.com/khrysma.dei" target="_blank">@khrysma.dei</a>
     - via LinkedIn: Khrysma Dei Caldina
 
