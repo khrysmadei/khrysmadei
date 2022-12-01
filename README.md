@@ -9,8 +9,8 @@ I'm Khrysma Dei Caldina
 - 😄 Pronouns: she/her
 - 📫 How to reach me 
     - via e-mail: kd.caldina@gmail.com 
-    - via Pinterest: @grahamzz 
+    - via Pinterest: <a href="https://www.google.com/" target="_blank">@grahamzz</a>
     - via Instagram: @khyyyyd
-    - via Facebook: @khrysma.dei
+    - via Facebook: <a href=" https://www.facebook.com/khrysma.dei" target="@khrysma.dei">
     - via LinkedIn: Khrysma Dei Caldina
 
