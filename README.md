@@ -2,10 +2,10 @@
 
 I'm Khrysma Dei Caldina 
 ✨About Me ✨ 
-- 📚 I’m currently studying at West Visayas State University
-- 💻 I’m taking up Bachelor of Science in Information Technology
-- 🌱 I’m currently learning UI/UX
-- My hobbies are photography📷, movies🎬, online games🎮, and create pinterest pins📌 
+- 💻 I’m currently working as Videographer and Social Media Manager @Department of Agriculture - Western Visayas
+- 📚 Gradute of BS in Information Technology major in Multimedia Technology
+- 🌱 I’m building my portfolio website
+- My hobbies are photography📷, movies🎬, online games🎮, and fan of E-sports especially LCK
 - 😄 Pronouns: she/her
 - 📫 How to reach me 
     - via e-mail: kd.caldina@gmail.com 
