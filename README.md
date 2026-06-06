@@ -10,7 +10,7 @@ I'm Khrysma Dei Caldina
 - 📫 How to reach me 
     - via e-mail: kd.caldina@gmail.com 
     - via Pinterest: <a href="https://www.pinterest.ph/grahamzz/" target="_blank">@grahamzz</a>
-    - via Instagram: <a href="https://www.instagram.com/khyyyyd/" target="_blank">@khyyyyd</a>
+    - via Instagram: <a href="https://www.instagram.com/khydei.img/" target="_blank">@khydei.img</a>
     - via Facebook: <a href="https://www.facebook.com/khrysma.dei" target="_blank">@khrysma.dei</a>
     - via LinkedIn: <a href="https://www.linkedin.com/in/khrysma-dei-caldina-7b4456235/" target="_blank">Khrysma Dei Caldina</a>
 
